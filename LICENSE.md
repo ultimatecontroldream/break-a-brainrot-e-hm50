@@ -1,4 +1,4 @@
-#  
+#  Experience break a brainrot egg like never before with stealth break a brainrot egg Scripts, the #1 Script. Includes god mode and auto-upgrade for
 
 
 
